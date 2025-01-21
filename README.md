@@ -1,4 +1,3 @@
-![Profile views](https://gpvc.arturio.dev/Cadu-Meirelles)
 ## Bem-vindo(a) ao perfil do Cadu Meirelles 😁
 
  <div>
